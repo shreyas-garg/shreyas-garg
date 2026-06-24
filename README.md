@@ -1,1 +1,1 @@
-![](./shreyas_garg (4).svg)
+![](./shreyas_garg.svg)
