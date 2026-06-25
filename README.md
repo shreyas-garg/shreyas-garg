@@ -1,1 +1,1 @@
-![](./shreyas_garg.svg)
+![](./shreyas.png)
